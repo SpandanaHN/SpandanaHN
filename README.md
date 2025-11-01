@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **hnspandana55@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1rEl4I-enWaQGsz7HVbpNNJAt6CoP47HF/view?usp=sharing](https://drive.google.com/file/d/1rEl4I-enWaQGsz7HVbpNNJAt6CoP47HF/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
